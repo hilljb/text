@@ -21,7 +21,7 @@ Morocco. So, I took several recipes and modified them, making a vegan and gluten
 * 2 cloves garlic
 * 1 Tsp lemon juice
 * olive oil
-* 1/3 cup flour
+* 1/3 cup corn starch (flour -- has gluten)
 * 2.5 liters water
 * 3 tsp salt
 * 1 tsp ground tumeric
@@ -42,6 +42,6 @@ Morocco. So, I took several recipes and modified them, making a vegan and gluten
 * After garlic has sauteed for < 1 minute, add: tomato puree, parsely, cilantro, lentils, salt, lemon juice, water
 * Stir, cover, and cook on medium for 45 minutes, stirring occasionally.
 * Add the chick peas and tomato paste.
-* Dilute the flour in water, whisk, and slowly add to soup.
+* Dilute the corn starch in water, whisk, and slowly add to soup.
 * Add rice noodles.
 * Cover and cook for 10 minutes.
