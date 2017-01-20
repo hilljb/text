@@ -40,13 +40,13 @@ Morocco. So, I took several recipes and modified them, making a vegan and gluten
 * When starting to soften, add tumeric, cumin, cinnamon, ginger, and cayenne pepper. Stir. Use more olive oil as needed.
 * When starting to brown, add garlic.
 * After garlic has sauteed for < 1 minute, add:
-** tomato puree
-** parsely
-** cilantro
-** lentils
-** salt
-** lemon juice
-** water
+..* tomato puree
+..* parsely
+..* cilantro
+..* lentils
+..* salt
+..* lemon juice
+..* water
 * Stir, cover, and cook on medium for 45 minutes, stirring occasionally.
 * Add the chick peas and tomato paste.
 * Dilute the flour in water, whisk, and slowly add to soup.
