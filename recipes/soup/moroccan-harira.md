@@ -32,7 +32,7 @@ Morocco. So, I took several recipes and modified them, making a vegan and gluten
 
 ## Prep
 
-* Soak the lentils in water for one hour and then drain.
+* Soak the lentils in water for one hour.
 
 ## Directions
 
