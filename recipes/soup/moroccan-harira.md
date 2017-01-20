@@ -9,27 +9,26 @@ Morocco. So, I took several recipes and modified them, making a vegan and gluten
 
 ## Ingredients
 
-* 1 onion, finely chopped -
-* 1 stick celery, finely chopped -
-* 3 tomatoes, peeled and pureed (I use a food mill) -
-* 3 Tsp tomato paste -
-* 1 can (15 oz) chick peas -
-* 1/2 cup green lentils -
+* 1 onion, finely chopped
+* 1 stick celery, finely chopped
+* 3 tomatoes, peeled and pureed (I use a food mill)
+* 3 Tsp tomato paste
+* 1 can (15 oz) chick peas
+* 1/2 cup green lentils
 * 1/2 cup rice noodles chopped (or vermicelli -- has gluten)
-* 1/3 cup finely chopped cilantro -
-* 1/3 cup finely chopped parsely -
-* 2 cloves garlic -
-* 1 Tsp lemon juice -
-* olive oil -
-* 1/3 cup flour -
-* 2.5 liters water -
-
-* 3 tsp salt -
-* 1 tsp ground tumeric -
-* 1 tsp cumin -
-* 1 tsp ground cinnamon -
-* 1/2 tsp ground ginger -
-* 1/4 tsp ground cayenne pepper -
+* 1/3 cup finely chopped cilantro
+* 1/3 cup finely chopped parsely
+* 2 cloves garlic
+* 1 Tsp lemon juice
+* olive oil
+* 1/3 cup flour
+* 2.5 liters water
+* 3 tsp salt
+* 1 tsp ground tumeric
+* 1 tsp cumin
+* 1 tsp ground cinnamon
+* 1/2 tsp ground ginger
+* 1/4 tsp ground cayenne pepper
 
 ## Prep
 
