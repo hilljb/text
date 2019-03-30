@@ -6,27 +6,27 @@ I've made this as a 2-person meal. It worked pretty well in a small to medium ca
 
 ## Ingredients
 
-1 pound of ground lamb (Shepherd's pie uses lamb, not beef)
-1/2 onion
-2 carrots (or equivalent carrots and peas)
-3 gold potatoes (or 2 gold and 1 russet)
-1/2 stick of unsalted butter
-15g flour
-1/2 small can of tomato paste
-50g cream cheese
-1 egg
-2-3 Tbsp Worchestershire sauce
-1/2 glass of red wine
-1/2 small block of Irish cheddar
-1 large Tbsp Better than Bouillon (beef or chicken)
-salt and pepper
-1 tsp rosemary, preferably fresh
-1 tsp thyme, preferably fresh
-1 tsp paprika
-1/2 tsp cinnamon
-1/2 tsp cayenne (it does more than make things spicy)
-1 small bunch green onions
-olive oil
+* 1 pound of ground lamb (Shepherd's pie uses lamb, not beef)
+* 1/2 onion
+* 2 carrots (or equivalent carrots and peas)
+* 3 gold potatoes (or 2 gold and 1 russet)
+* 1/2 stick of unsalted butter
+* 15g flour
+* 1/2 small can of tomato paste
+* 50g cream cheese
+* 1 egg
+* 2-3 Tbsp Worchestershire sauce
+* 1/2 glass of red wine
+* 1/2 small block of Irish cheddar
+* 1 large Tbsp Better than Bouillon (beef or chicken)
+* salt and pepper
+* 1 tsp rosemary, preferably fresh
+* 1 tsp thyme, preferably fresh
+* 1 tsp paprika
+* 1/2 tsp cinnamon
+* 1/2 tsp cayenne (it does more than make things spicy)
+* 1 small bunch green onions
+* olive oil
 
 ## Make the Mince
 
